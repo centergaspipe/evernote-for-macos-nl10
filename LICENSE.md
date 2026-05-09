@@ -1,4 +1,4 @@
-
+new Evernote for macOS Extension | custom shortcuts + cloud backup is the best Evernote for macOS extension, featuring custom shortcuts and cloud backup. Safe, efficient, and
 
 
 
